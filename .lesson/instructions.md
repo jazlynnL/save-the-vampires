@@ -1,5 +1,0 @@
-# Instructions  
-
-On Google Classroom.
-  
-  
